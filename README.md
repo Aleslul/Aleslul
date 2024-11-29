@@ -1,8 +1,11 @@
-- 👋 Hi, I’m @Aleslul
-- 👀 I’m interested in nothing in particular.
-- 🌱 I’m currently learning anything.
-- 💞️ I’m looking to collaborate on my house.
-- 📫 Find me in my country.
+AHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
+
+I'M NOT
+
+RADIOHEAD FAN
+
+REALLY A RADIOHEAD FAN
+
 
 <!---
 Aleslul/Aleslul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
