@@ -1,13 +1,1 @@
-AHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-
-I'M NOT
-
-RADIOHEAD FAN
-
-REALLY A RADIOHEAD FAN
-
-
-<!---
-Aleslul/Aleslul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Let me out
